@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AnjyRazouel from Madagascar
-- 👀 I’m interested in Kung Fu ( 6e Dan) and computer science 
+- 👀 I’m interested in Kung Fu ( 6th Dan) and computer science 
 - 🌱 I’m currently learning Politics and maths
 
 <!---
